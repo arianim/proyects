@@ -1,2 +1,2 @@
 # proyects
-diferente
+diferentes tipos de trabajos
